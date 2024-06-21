@@ -1,5 +1,5 @@
+![Promote](https://github.com/kelvin3514/notice/assets/37209206/825a8f08-6763-4a33-bd8c-9f8d1ed18bcc)
 
-![Uploading Promote.jpg…]()
 
 6月29日 20:00 全亞洲同步上線 火熱登場！
 號召昔日戰友憶同回歸 當年激情無須等待
