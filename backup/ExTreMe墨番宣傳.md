@@ -1,5 +1,5 @@
 
-![341669863-825a8f08-6763-4a33-bd8c-9f8d1ed18bcc](https://github.com/kelvin3514/notice/assets/37209206/ae2f3883-de19-4741-bacb-0f503edaac57)
+![promote](https://github.com/kelvin3514/notice/assets/37209206/710f6fe7-d9dd-4acc-a072-f55e79a85812)
 
 6月29日 20:00 全亞洲同步上線 火熱登場！
 號召昔日戰友憶同回歸 當年激情無須等待
